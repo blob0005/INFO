@@ -1,7 +1,7 @@
 # INFO
 
 
-Discord Name: blob#0005
+Discord Name: blob#2176
 
 Discord Server: https://discord.gg/Crc92V59ck
 
